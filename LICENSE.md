@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Obsidian for Windows extension with professional Obsidian for Windows Extension | rich-text-editing + tags. Featuring rich-text-editing and tags, it's the best
 
 
 
